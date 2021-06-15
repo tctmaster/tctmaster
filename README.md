@@ -1,3 +1,1 @@
-- SHOPEE: https://shopee.vn/tct.master
-- PAGE: https://facebook.com/LedDigitalAG/
-- FACEBOOK:https://www.facebook.com/nhutthanh1992ag/
+.............
